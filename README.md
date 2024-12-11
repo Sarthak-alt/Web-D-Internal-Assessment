@@ -1,4 +1,7 @@
-![Screenshot 2024-12-11 173600](https://github.com/user-attachments/assets/0901d233-6bb5-4e94-85af-d69bad4b10f5)
-![Screenshot 2024-12-11 173611](https://github.com/user-attachments/assets/8f9dcff9-6aec-42a9-a399-eeb22d0fa3e5)
-![Screenshot 2024-12-11 173700](https://github.com/user-attachments/assets/e13b4695-3e5c-4f1b-b111-300c6a1b3768)
-![Screenshot 2024-12-11 173707](https://github.com/user-attachments/assets/41628238-fa79-4be5-b31a-fa75ee433352)
+![Screenshot 2024-12-11 173701](https://i.postimg.cc/GT2Hk99Q/Screenshot-2024-12-11-213202.png)
+![Screenshot 2024-12-11 173702](https://i.postimg.cc/ZBjWB6Yn/Screenshot-2024-12-11-213217.png)
+![Screenshot 2024-12-11 173703](https://i.postimg.cc/tZ914Bj8/Screenshot-2024-12-11-213309.png)
+![Screenshot 2024-12-11 173704](https://i.postimg.cc/qtshr998/Screenshot-2024-12-11-213330.png)
+![Screenshot 2024-12-11 173705](https://i.postimg.cc/mcfz0b6L/Screenshot-2024-12-11-213342.png)
+
+
